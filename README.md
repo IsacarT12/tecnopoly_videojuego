@@ -1,1 +1,0 @@
-# tecnopoly_videojuego
